@@ -1,1 +1,1 @@
-"nj rfrjq-nj ghjtrn yf ubn[f, frrfeynt]
+Это какой-то проект на гитхаб аккаунте.
